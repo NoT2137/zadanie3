@@ -1,2 +1,2 @@
 # zadanie3
-zadanie
+takie o zadanie
